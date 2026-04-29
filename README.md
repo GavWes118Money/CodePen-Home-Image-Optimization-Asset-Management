@@ -1,0 +1,1 @@
+The image compressed was a design for a fictional snack called “Pickle Popcorn" from one of my last classes. If uploaded correctly, the Webp image file should be the one on the left with a transparent background.
